@@ -3,7 +3,7 @@
  <td colspan="2">
 
 
-  <p align="center">Hiya! This is an archive of my fanfic drafts that are currently unpublished. Since Archive Of Our Own/AO3 has a deletion date for unpublished drafts, I decided to create this archive for my own drafts to keep them permanently. Please leave if you have somehow stumbled upon this! (╥﹏╥)
+  <p align="center">Hiya! This is an archive of my fanfic drafts that are currently unpublished. Since Archive Of Our Own/AO3 has a deletion date for unpublished drafts, I decided to create this archive for my own drafts to keep them permanently. Please leave if you have somehow found this! (╥﹏╥)
     
   <details>
 
