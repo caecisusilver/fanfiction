@@ -19,10 +19,6 @@ summary
 
 hina and haru's 2nd date after the first one didn't go sooo well............. except it doesn't go well AGAIN and uhh lol they get arrested or something and rust is hthere
 
-hina: lets kiss
-haru: omg yes
-rust: hey guys
-
 ==========
 
 WHAT DO I START THIS WITH. wip.
